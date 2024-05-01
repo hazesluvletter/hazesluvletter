@@ -20,7 +20,7 @@ DNT if i don't know you, I don't have a TD or TT I just.. don't want strangers c
 
 Do not copy or take heavy inspo from my skins **WITHOUT** asking! 
 
-I have audhd , severe anxiety , deppresion , and am a DID system of 60+ , Please respect that and do not ask for a specific person to front unless you are close. You can always ask who's fronting tho ^-^
+I have audhd , severe anxiety , deppresion , and am a DID system of 30+ , Please respect that and do not ask for a specific person to front unless you are close. You can always ask who's fronting tho ^-^
 
 Underlust + Leviathantale DNI. I do not like,, those weird.. ass fetish.. things... whatever they are... STAY AWAY!!
 
